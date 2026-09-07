@@ -1,7 +1,4 @@
-# RedLineStealer
-
-> Not to be confused with the RedLine Stealer MaaS. I am an independent security researcher.
-
+> If you are wondering with happened to *redlinestealerrealop*, we don't talk about that. let's just say they 'took' away my hard work.
 ---
 
 ## Experience
