@@ -1,4 +1,4 @@
-> If you are wondering with happened to *redlinestealerrealop*, we don't talk about that. let's just say they 'took' away my hard work.
+> If you are wondering what happened to *redlinestealerrealop*, we don't talk about that. let's just say they 'took' away my hard work.
 ---
 
 ## Experience
